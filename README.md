@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Welcome to my myspace page
+Welcome to my MySpace page!
